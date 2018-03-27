@@ -1,1 +1,0 @@
-# israelmezan.github.io
